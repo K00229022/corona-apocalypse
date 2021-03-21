@@ -1,2 +1,0 @@
-# CoronaApocalypse
-# corona-apocalypse
